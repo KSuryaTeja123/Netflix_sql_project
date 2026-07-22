@@ -269,6 +269,3 @@ This analysis provides a comprehensive view of Netflix's content and can help in
 
 
 
-
-
-Thank you for your support, and I look forward to connecting with you!
